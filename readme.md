@@ -1,4 +1,5 @@
-### Day trips
+### Sites and trips
+- Farmers markets: the [Ballard Sunday Farmer's Market](http://www.yelp.com/biz/ballard-sunday-farmers-market-seattle) is the best for produce and the [Fremont Sunday Market](http://www.fremontmarket.com/) the best for arts and crafts.
 - Woodinville wineries ([Chateau St. Michelle](http://www.ste-michelle.com/), [Mark Ryan](http://www.markryanwinery.com/), and [A meadery](http://www.skyriverbrewing.com/)).
 - Ride a [ferry](http://www.wsdot.wa.gov/ferries/) to an Island: one of Vashon (most earthy), Bainbridge (most wealthy), or Whidbey island. I like the [Harbor Pub](http://harbourpub.com/) on Bainbridge and its the easiest trip of the three, but you couldn't go wrong with any of the restaurants on those islands.
 - [Snoqualmie Falls](http://www.snoqualmiefalls.com/) and hit the [Snoqualmie Brewery](http://fallsbrew.com/) too?
@@ -23,7 +24,7 @@
 
 ### More $$$ dining places
 - [Walrus and Carpenter](http://www.yelp.com/biz/the-walrus-and-the-carpenter-seattle###query:Walrus%20And%20The%20Carpenter), the best seafood in town in a tiny place, call ahead or put your name in early. It got written up in the NY times which has made it tough to get in.
-- [Sitka and Spruce](http://www.yelp.com/biz/sitka-and-spruce-seattle###query:sitka%20and%20spruce), best locally grown and sourced food... the whole Madison market that it is in is a treat to visit. There's a local butcher, a cheese shop, a wine shop... that kind of stuff.
+- [Sitka and Spruce](http://www.yelp.com/biz/sitka-and-spruce-seattle###query:sitka%20and%20spruce), best locally grown and sourced food... the whole [Melrose Market](http://melrosemarketseattle.com/) that it is in is a treat to visit. There's a local butcher, a cheese shop, a wine shop... that kind of stuff.
 - [Olivar](http://www.yelp.com/biz/olivar-seattle-2), mediterranean place on Cap Hill.
 - [Ocho](http://www.yelp.com/biz/ocho-seattle###query:ocho), tapas in Ballard.
 - [Rays](http://www.yelp.com/biz/rays-caf%C3%A9-seattle-2###query:Rays%20Boathouse%20Cafe%20%26%20Catering), seafood with a view. Not the most character, but the view is to die for.
