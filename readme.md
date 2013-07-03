@@ -6,6 +6,7 @@
     - I rx a little hike at [Sunrise](http://www.nps.gov/mora/planyourvisit/sunrise.htm)
     - Then I like to drive east and chill near the top of the pass at Lake xxxxx.
 - [Chelan](http://www.lakechelanwinevalley.com/), Hood River, The San Juans, the Coast, the Olympics, Port Townsend, Port Angeles, Bellingham, and Olympia are all interesting destinations.
+- [Portland](http://waxy.org/2011/09/geeks_guide_to_portland_2011/), my favorite guide to Portland that I've found.
 
 ### Brunch spots
 - [Hi-Spot](http://www.yelp.com/biz/the-hi-spot-cafe-seattle###query:hi%20spot), all-time favorite... may want to consider calling ahead as it can be a 30 min wait.
