@@ -10,7 +10,7 @@
 
 ### Brunch spots
 - [Hi-Spot](http://www.yelp.com/biz/the-hi-spot-cafe-seattle###query:hi%20spot), all-time favorite... may want to consider calling ahead as it can be a 30 min wait.
-- [Volunteer Park Cafe](http://www.yelp.com/biz/volunteer-park-cafe-and-marketplace-seattle###query:volunteer%20park%20cafe), go to the [SAAM](http://www.seattleartmuseum.org/visit/visitSAAM.asp), walk around Volunteer park (climb the [water tower](http://www.yelp.com/biz/volunteer-park-water-tower-seattle) for a view), visit Bruce Lee's grave in the nearby cemetary, visit the [conservatory](http://www.yelp.com/biz/volunteer-park-conservatory-seattle).
+- [Volunteer Park Cafe](http://www.yelp.com/biz/volunteer-park-cafe-and-marketplace-seattle###query:volunteer%20park%20cafe), go to the [SAAM](http://www.seattleartmuseum.org/visit/visitSAAM.asp), walk around Volunteer park (climb the [water tower](http://www.yelp.com/biz/volunteer-park-water-tower-seattle) for a view), visit [Bruce Lee's grave](http://www.tripadvisor.com/Attraction_Review-g60878-d615595-Reviews-Bruce_Lee_Grave_Site-Seattle_Washington.html) in the nearby cemetary, visit the [conservatory](http://www.yelp.com/biz/volunteer-park-conservatory-seattle).
 - [Portage Bay Cafe](http://www.yelp.com/biz/portage-bay-caf%C3%A9-seattle-8), 3 locations, this one is downtown. I probably like the Ballard one the best.
 - [Wild Mountain Cafe](http://www.yelp.com/biz/wild-mountain-cafe-seattle###query:wild%20mountain), over in Ballard but cute.
 
