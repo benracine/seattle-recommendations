@@ -1,11 +1,11 @@
 ### Day trips
-- Woodinville wineries ([Chateau St. Michelle](http://www.ste-michelle.com/), [Mark Ryan](http://www.markryanwinery.com/), and [A meadery](http://www.skyriverbrewing.com/))
+- Woodinville wineries ([Chateau St. Michelle](http://www.ste-michelle.com/), [Mark Ryan](http://www.markryanwinery.com/), and [A meadery](http://www.skyriverbrewing.com/)).
 - Ride a [ferry](http://www.wsdot.wa.gov/ferries/) to an Island: one of Vashon (most earthy), Bainbridge (most wealthy), or Whidbey island. I like the [Harbor Pub](http://harbourpub.com/) on Bainbridge and its the easiest trip of the three, but you couldn't go wrong with any of the restaurants on those islands.
 - [Snoqualmie Falls](http://www.snoqualmiefalls.com/) and hit the [Snoqualmie Brewery](http://fallsbrew.com/) too?
 - Mount Rainier 
     - I rx a little hike at [Sunrise](http://www.nps.gov/mora/planyourvisit/sunrise.htm)
-    - Then I like to drive east and chill near the top of the pass at Lake xxxxx
-- The San Juans, the Coast, the Olympics, Port Townsend, Port Angeles, Bellingham, and Olympia are all interesting destinations
+    - Then I like to drive east and chill near the top of the pass at Lake xxxxx.
+- [Chelan](http://www.lakechelanwinevalley.com/), Hood River, The San Juans, the Coast, the Olympics, Port Townsend, Port Angeles, Bellingham, and Olympia are all interesting destinations.
 
 ### Brunch spots
 - [Hi-Spot](http://www.yelp.com/biz/the-hi-spot-cafe-seattle###query:hi%20spot), all-time favorite... may want to consider calling ahead as it can be a 30 min wait.
