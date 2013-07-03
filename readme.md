@@ -54,7 +54,7 @@
 ### Music Venues
 Pick up a copy of [The Stranger](http://www.thestranger.com/) in most low-brow bars and shop amongst:
 - [Crocodile](http://www.thecrocodile.com/)
-- [Tractor Tavern]
+- [Tractor Tavern](http://www.tractortavern.com/)
 - [Sunset](http://www.sunsettavern.com/)
 - [Neumos](http://neumos.com/)
 - [Paramount, Moore, and Neptune](http://www.stgpresents.org/) 
