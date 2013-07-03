@@ -8,8 +8,8 @@
 - The Coast, the Olympics, Port Townsend, Port Angeles, Bellingham, and Olympia are all interesting destinations
 
 ### Brunch spots
-- [Hi-Spot](http://www.yelp.com/biz/the-hi-spot-cafe-seattle###query:hi%20spot) all-time favorite
-- [Volunteer Park Cafe](http://www.yelp.com/biz/volunteer-park-cafe-and-marketplace-seattle###query:volunteer%20park%20cafe), go to the SAAM and walk around Volunteer park perhaps
+- [Hi-Spot](http://www.yelp.com/biz/the-hi-spot-cafe-seattle###query:hi%20spot), all-time favorite... may want to consider calling ahead as it can be a 30 min wait
+- [Volunteer Park Cafe](http://www.yelp.com/biz/volunteer-park-cafe-and-marketplace-seattle###query:volunteer%20park%20cafe), go to the [SAAM](http://www.seattleartmuseum.org/visit/visitSAAM.asp), walk around Volunteer park (climb the water tower for a view), and visit Bruce Lee's grave in the nearby cemetary
 - [Portage Bay Cafe](http://www.yelp.com/biz/portage-bay-caf%C3%A9-seattle-8), near your hotel
 - [Wild Mountain Cafe](http://www.yelp.com/biz/wild-mountain-cafe-seattle###query:wild%20mountain), over in Ballard but cute
 
