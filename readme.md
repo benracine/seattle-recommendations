@@ -1,4 +1,6 @@
 ### Sites and trips
+- [Ballard Locks](http://www.yelp.com/biz/hiram-m-chittenden-locks-seattle)
+- Parks: [Seward](http://www.seattle.gov/parks/environment/seward.htm), [Discovery](http://www.seattle.gov/parks/environment/discovery.htm), and [Golden Gardens](http://www.seattle.gov/parks/park_detail.asp?ID=243)
 - Farmers markets: the [Ballard Sunday Farmer's Market](http://www.yelp.com/biz/ballard-sunday-farmers-market-seattle) is the best for produce and the [Fremont Sunday Market](http://www.fremontmarket.com/) the best for arts and crafts.
 - Woodinville wineries ([Chateau St. Michelle](http://www.ste-michelle.com/), [Mark Ryan](http://www.markryanwinery.com/), and [A meadery](http://www.skyriverbrewing.com/)).
 - Ride a [ferry](http://www.wsdot.wa.gov/ferries/) to an Island: one of Vashon (most earthy), Bainbridge (most wealthy), or Whidbey island. I like the [Harbor Pub](http://harbourpub.com/) on Bainbridge and its the easiest trip of the three, but you couldn't go wrong with any of the restaurants on those islands.
