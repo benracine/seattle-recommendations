@@ -10,6 +10,7 @@
 - Rainier 
     - I rx a little hike at [Sunrise](http://www.nps.gov/mora/planyourvisit/sunrise.htm)
     - Then I like to drive east and chill near the top of the pass at Lake xxxxx
+- The Coast, the Olympics, Port Townsend, Port Angeles, Bellingham, and Olympia are all interesting destinations
 
 ### My favorite brunch spots
 - [Hi-Spot, all-time favorite](http://www.yelp.com/biz/the-hi-spot-cafe-seattle###query:hi%20spot)
