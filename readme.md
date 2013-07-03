@@ -1,3 +1,16 @@
+## Day trips
+- Woodinville wineries
+    - [Chateau St. Michelle](http://www.ste-michelle.com/)
+    - [Mark Ryan](http://www.markryanwinery.com/)
+    - [A meadery](http://www.skyriverbrewing.com/)
+- Ride a ferry to one of Vashon (most earthy), Bainbridge (most wealthy), or Whidbey island
+    - I like the [Harbor Pub](http://harbourpub.com/) on Bainbridge as Bainbridge is also the easiest to get to
+- [Snoqualmie Falls](http://www.snoqualmiefalls.com/)
+    - Hit the [Snoqualmie Brewery](http://fallsbrew.com/) too?
+- Rainier 
+    - I rx a little hike at [Sunrise](http://www.nps.gov/mora/planyourvisit/sunrise.htm)
+    - Then I like to drive east and chill near the top of the pass at Lake xxxxx
+
 ## My favorite brunch spots
 - [Hi-Spot, all-time favorite](http://www.yelp.com/biz/the-hi-spot-cafe-seattle##query:hi%20spot)
 - [Volunteer Park Cafe, go to the SAAM and walk around Volunteer park perhaps](http://www.yelp.com/biz/volunteer-park-cafe-and-marketplace-seattle##query:volunteer%20park%20cafe)
