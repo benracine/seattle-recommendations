@@ -22,7 +22,7 @@
 - [Bitteroot](http://www.yelp.com/biz/bitterroot-bbq-seattle###query:Bitterroot%20BBQ), southern BBQ in Ballard.
 
 ### More $$$ dining places
-- [Walrus and Carpenter](http://www.yelp.com/biz/the-walrus-and-the-carpenter-seattle###query:Walrus%20And%20The%20Carpenter), the best seafood in town in a tiny place, call ahead
+- [Walrus and Carpenter](http://www.yelp.com/biz/the-walrus-and-the-carpenter-seattle###query:Walrus%20And%20The%20Carpenter), the best seafood in town in a tiny place, call ahead or put your name in early. It got written up in the NY times which has made it tough to get in.
 - [Sitka and Spruce](http://www.yelp.com/biz/sitka-and-spruce-seattle###query:sitka%20and%20spruce), best locally grown and sourced food... the whole Madison market that it is in is a treat to visit. There's a local butcher, a cheese shop, a wine shop... that kind of stuff.
 - [Olivar](http://www.yelp.com/biz/olivar-seattle-2), mediterranean place on Cap Hill.
 - [Ocho](http://www.yelp.com/biz/ocho-seattle###query:ocho), tapas in Ballard.
