@@ -9,6 +9,11 @@
 - [Chelan](http://www.lakechelanwinevalley.com/), Hood River, The San Juans, the Coast, the Olympics, Port Townsend, Port Angeles, Bellingham, and Olympia are all interesting destinations.
 - [Portland](http://waxy.org/2011/09/geeks_guide_to_portland_2011/), my favorite guide to Portland that I've found.
 
+### Coffee Shops
+- [Cafe Presse Seattle](http://www.yelp.com/biz/caf%C3%A9-presse-seattle-2###query:cafe%20presse)
+- [Dutch Bike Company](http://www.yelp.com/biz/dutch-bike-co-seattle-2###query:dutch%20bike%20company), it really is a coffee shop, I swear.
+- Also more than I could possibly list... but again, I recommend Capitol Hill and Ballard primarily.
+
 ### Brunch spots
 - [Hi-Spot](http://www.yelp.com/biz/the-hi-spot-cafe-seattle###query:hi%20spot), all-time favorite... may want to consider calling ahead as it can be a 30 min wait.
 - [Volunteer Park Cafe](http://www.yelp.com/biz/volunteer-park-cafe-and-marketplace-seattle###query:volunteer%20park%20cafe), go to the [SAAM](http://www.seattleartmuseum.org/visit/visitSAAM.asp), walk around Volunteer park (climb the [water tower](http://www.yelp.com/biz/volunteer-park-water-tower-seattle) for a view), visit [Bruce Lee's grave](http://www.tripadvisor.com/Attraction_Review-g60878-d615595-Reviews-Bruce_Lee_Grave_Site-Seattle_Washington.html) in the nearby cemetary, visit the [conservatory](http://www.yelp.com/biz/volunteer-park-conservatory-seattle).
@@ -30,6 +35,11 @@
 - [Rays](http://www.yelp.com/biz/rays-caf%C3%A9-seattle-2###query:Rays%20Boathouse%20Cafe%20%26%20Catering), seafood with a view. Not the most character, but the view is to die for.
 - [Kingfish Cafe](http://www.yelp.com/biz/the-kingfish-cafe-seattle), real soul food.
 
+### Desserts
+- [High 5 Pies](http://www.yelp.com/biz/high-5-pie-seattle-3)
+- [Hot Cakes](http://www.yelp.com/biz/hot-cakes-molten-chocolate-cakery-seattle)
+- [Molly Moons Ice Cream](http://www.yelp.com/biz/molly-moons-ice-cream-seattle-2###query:mollie%20moons)
+
 ### Bars
 - [9 lb Hammer](http://www.yelp.com/biz/9-lb-hammer-seattle), dirty but endearing dive bar. Feels like you went to Montana.
 - [Bottlehouse](http://www.yelp.com/biz/bottlehouse-seattle###query:bottle%20house), a happy little wine bar right next to the previously mentioned Hi-Spot cafe.
@@ -47,14 +57,4 @@ Pick up a copy of [The Stranger](http://www.thestranger.com/) in most low-brow b
 - [Neumos](http://neumos.com/)
 - [Paramount, Moore, and Neptune](http://www.stgpresents.org/) 
 - [Showbox](http://www.showboxpresents.com/)
-
-### Desserts
-- [High 5 Pies](http://www.yelp.com/biz/high-5-pie-seattle-3)
-- [Hot Cakes](http://www.yelp.com/biz/hot-cakes-molten-chocolate-cakery-seattle)
-- [Molly Moons Ice Cream](http://www.yelp.com/biz/molly-moons-ice-cream-seattle-2###query:mollie%20moons)
-
-### Coffee Shops
-- [Cafe Presse Seattle](http://www.yelp.com/biz/caf%C3%A9-presse-seattle-2###query:cafe%20presse)
-- [Dutch Bike Company](http://www.yelp.com/biz/dutch-bike-co-seattle-2###query:dutch%20bike%20company), it really is a coffee shop, I swear.
-- Also more than I could possibly list... but again, I recommend Capitol Hill and Ballard primarily.
 
