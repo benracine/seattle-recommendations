@@ -35,7 +35,7 @@
 - [Bathtub Gin](http://www.yelp.com/biz/bathtub-gin-and-co-seattle), a "speakeasy"
 - [Alibi Room](http://www.yelp.com/biz/alibi-room-seattle), bar tucked away in Pike Place
 - [Celtic Swell](http://www.yelp.com/biz/the-celtic-swell-seattle), Irish Bar in West Seattle with kind of a view
-- More than I could possibly list... but again, I recommend Capitol Hill and Ballard primarily.
+- More than I could possibly list... but again, I recommend [Capitol Hill](http://www.yelp.com/search?find_desc=capitol+hill+bars&find_loc=Seattle%2C+WA) and [Ballard](http://www.yelp.com/search?cflt=bars&find_loc=Ballard%2C+Seattle%2C+WA) primarily. Heads up, Capitol Hill is the alternative neighborhood.
 
 ### Desserts
 - [High 5 Pies](http://www.yelp.com/biz/high-5-pie-seattle-3)
