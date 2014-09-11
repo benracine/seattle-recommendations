@@ -7,7 +7,7 @@
 - **I-90 East**: 
 Rent some snowshoes down in town at either [REI](http://www.rei.com/stores/seattle.html) or [Marmot Mountain Works in Bellevue](https://www.marmotmountain.com/), get brunch at [Twede's cafe](http://www.twedescafe.com/) (in North Bend, WA and so straight out of [Twin Peaks](http://www.youtube.com/watch?feature=player_embedded&v=5PcoMrwEa5o)), hit a [trail or two](http://www.wta.org/), and then reward yourself with some day-drinking at the oldest bar in Washington, [The Brick](http://www.bricksaloon.com/). The Brick's bar itself is over 100 years old, has a 23' running water spittoon, and a jail cell in the basement... so, a friggin' gem.
 
-- Ride a **[ferry](http://www.wsdot.wa.gov/ferries/)** to a nearby island: one of Vashon (most earthy), Bainbridge (closest), or Whidbey island. I like the [Harbor Pub](http://harbourpub.com/) on Bainbridge. [Bainbridge distillers](http://www.bainbridgedistillers.com/) has tours Mon-Sat noon-5pm.
+- Ride a [**ferry**](http://www.wsdot.wa.gov/ferries/) to a nearby island: one of Vashon (most earthy), Bainbridge (closest), or Whidbey island. I like the [Harbor Pub](http://harbourpub.com/) on Bainbridge. [Bainbridge distillers](http://www.bainbridgedistillers.com/) has tours Mon-Sat noon-5pm.
 
 - Hitting the San Juan Islands is a bigger deal. I wouldn't recommend going without staying 2 nights (maybe one if you're really hauling). I LOVE [Doe Bay](http://doebay.com/) as it is a gorgeous little retreat out on Orcas Island... clothing-optional hot tubs with gorgeous views is a thing there. Might need to make rezzies there a bit out in advance?
 
@@ -40,9 +40,17 @@ __Music Venues__
 
 
 ### Belltown
-Kind of known as a meat-market neighborhood for suits, but, this totally is not fair... it's way more nuanced than that. It's the home of [The Crocodile](http://www.thecrocodile.com/calendar/) and they put a lot of energy into their calendar, if it doesn't have super unique ambiance. Grab a drink at [Radiator Whiskey](http://www.radiatorwhiskey.com/) in the market before. Other options could be [Bathtub Gin & Co.](http://bathtubginseattle.com/) or the [Zig-Zag](http://zigzagseattle.com/). There are dozens in the area if none of these work... [The Clever Bottle](http://www.cleverbottle.com/), [Cyclops](http://www.cyclopsseattle.com/), and [The Whiskey Bar](http://www.thewhiskybar.com/).
-- [Alibi Room](http://www.yelp.com/biz/alibi-room-seattle), bar tucked away in Pike Place near the gum wall.
+Kind of known as a meat-market neighborhood for suits, but, this totally is not fair... it's way more nuanced than that. 
+
+It's the home of [The Crocodile](http://www.thecrocodile.com/calendar/) and they put a lot of energy into their calendar, if it doesn't have super unique ambiance. 
+
+There are several good high-end cocktail places:
+- [Radiator Whiskey](http://www.radiatorwhiskey.com/) 
 - [Bathtub Gin](http://www.yelp.com/biz/bathtub-gin-and-co-seattle), a "speakeasy" downtown with good strong drinks.
+- [Alibi Room](http://www.yelp.com/biz/alibi-room-seattle), bar tucked away in Pike Place near the gum wall.
+- [Zig-Zag](http://zigzagseattle.com/). 
+
+There are dozens in the area if none of these work... [The Clever Bottle](http://www.cleverbottle.com/), [Cyclops](http://www.cyclopsseattle.com/), and [The Whiskey Bar](http://www.thewhiskybar.com/) are all worth checking out.
 
 ### Capitol Hill
 The epicenter of nightlife probably. Home of the [Neumo's](http://neumos.com/) and [Chop Suey](http://chopsuey.com/calendar/) music venues. 
@@ -65,15 +73,25 @@ Good brunch at [Cafe Presse](http://cafepresseseattle.com/home/). Even
 - [Bottlehouse](http://www.yelp.com/biz/bottlehouse-seattle###query:bottle%20house), a happy little wine bar right next to the previously mentioned Hi-Spot cafe.
 
 ### Fremont
-Has a troll statue, a Lenin statue, a [chocolate tour](https://www.theochocolate.com/factory-and-tours), and a [Whiskey tour](http://fremontmischief.com/tours-2/).
-
+Has a: 
+- troll statue
+- a Lenin statue
+- a [chocolate tour](https://www.theochocolate.com/factory-and-tours)
+- and a [Whiskey tour](http://fremontmischief.com/tours-2/).
 
 ### Georgetown
-By far my favorite neighborhood. I just don't live there because it's a ways from friends and other places I go. Well known for their [art walk](http://georgetownartattack.tumblr.com/) on second Saturdays. The [9 lb Hammer](http://www.yelp.com/biz/9-lb-hammer-seattle), is a dirty but endearing dive bar. Feels like you went to Montana. Probably my favorite bar in town. But... I hear the [Jules Mae](http://www.julesmaes.com/) is older.
+My favorite neighborhood. I just don't live there because it's a ways from friends and other places I go. Well known for their [art walk](http://georgetownartattack.tumblr.com/) on second Saturdays.
 
+Some bars I like include:
+- The [9 lb Hammer](http://www.yelp.com/biz/9-lb-hammer-seattle), is a dirty but endearing dive bar. It feels like you went to Montana. Perhaps my favorite bar in town. 
+- But, I hear the [Jules Mae](http://www.julesmaes.com/) is older. 
+- The [Runway Cafe](http://www.yelp.com/biz/runway-cafe-seattle) is also passable as a bar.
+- Just past Georgetown, down in South Park is the endearing [Loretta's Northwesterner](http://www.lorettasnorthwesterner.com/).
+
+I like the [Hangar Cafe](http://www.thehangarcafe.com/) for brunch. 
 
 ### West Seattle
-Keeping the dream of the 90's alive. I like these peeps... they are the 40 somethings that never left after the grunge scene quieted down. Brunch at [Easy Street Records](http://www.yelp.com/biz/easy-street-records-and-caf%C3%A9-seattle-2) would bring that picture to life.
+Keeping the dream of the 90's alive. I like these peeps... they are the 40 somethings that never left after the grunge scene quieted down. Brunch at [Easy Street Records](http://www.yelp.com/biz/easy-street-records-and-caf%C3%A9-seattle-2) could bring that picture to life.
 
 ### Pioneer Square
 - Home of the [First Thursday Art Walk](http://www.firstthursdayseattle.com/), [Delicatus](http://www.delicatusseattle.com/), and [The Underground Tour](https://www.undergroundtour.com/).
@@ -110,8 +128,6 @@ There is a healthy electronic dance scene, but might rear its head in [http://ww
 - [Ba-bar](http://www.yelp.com/biz/ba-bar-seattle###query:babar%20seattle), Asian and Pacific Northwest fusion in Cap Hill.
 - [Bitteroot](http://www.yelp.com/biz/bitterroot-bbq-seattle###query:Bitterroot%20BBQ), southern BBQ in Ballard.
 
-### More $$$ dining places
-
 ### Desserts
 - [High 5 Pies](http://www.yelp.com/biz/high-5-pie-seattle-3)
 - [Molly Moons Ice Cream](http://www.yelp.com/biz/molly-moons-ice-cream-seattle-2###query:mollie%20moons)
@@ -124,14 +140,11 @@ There is a healthy electronic dance scene, but might rear its head in [http://ww
 
 - The [Methow Valley](http://www.mvsta.com/) has great natural beauty... x-country skiing and getting a cabin is what I picture doing out there. It's a pretty far drive, like 5-6 hrs in winter. Leavenworth is a faux-German village that's much closer if you want to get out to the mountains w/o so much planning.
 
-
 - Mount Rainier: 
     - I rx a little hike at [Sunrise](http://www.nps.gov/mora/planyourvisit/sunrise.htm)
     - Then I like to drive east and chill near the top of the pass at Lake xxxxx.
 
 - [Chelan](http://www.lakechelanwinevalley.com/), Hood River, The San Juans, the Coast, the Olympics, Port Townsend, Port Angeles, Bellingham, and Olympia are all interesting destinations.
 
-
 ## Portland
 - [Portland](http://waxy.org/2011/09/geeks_guide_to_portland_2011/), my favorite guide to Portland that I've found.
-
